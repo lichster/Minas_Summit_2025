@@ -32,3 +32,6 @@ Não basta “estar”. Precisa **ocupar com inteligência**: curadoria + posici
 ![DSC06447](https://github.com/user-attachments/assets/973b133d-aa57-47d8-b2c4-c8e2259dac92)
 ![DSC06326](https://github.com/user-attachments/assets/4c6f684b-8924-4d85-be18-755a04143040)
 ![DSC06171](https://github.com/user-attachments/assets/4cc89030-49ff-47b8-9f2b-78bf8673c0ca)
+
+---
+<sub>Gratidão a Logun Edé — caminho e equilíbrio.</sub>
